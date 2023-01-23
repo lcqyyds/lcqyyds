@@ -1,1 +1,1 @@
-[![@lcq's Holopin board](https://holopin.me/rupsnigdha)](https://holopin.io/@rupsnigdha)
+[![@lcq's Holopin board](https://holopin.me/rupsnigdha)](https://holopin.io/@lcq)
